@@ -2,8 +2,8 @@
 - 👀 I’m interested in ...open to anything, just now learning
 - 🌱 I’m currently learning ... Python
 - 💞️ I’m looking to collaborate on ...i wouldnt be any help yet sorry!
-- 📫 How to reach me ...
-- 😄 Pronouns: ...To old to understand today society
+- 📫 How to reach me ...hopefully we dont need to talk lol
+- 😄 Pronouns: ...Too old to understand today's society
 - ⚡ Fun fact: ...im 44, so a little older than most
 
 <!---
